@@ -2,4 +2,3 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning C# , HTML
 - 📫 How to reach me : Discord : ig stoneryura#1609
-- 💊 Current Owner of https://dsc.gg/slitherswapper
