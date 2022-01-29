@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @YuraOnDiscord
-- 👀 I’m interested in Coding
+- 👀 I’m interested in Fortnite playing
 - 🌱 I’m currently learning C# , HTML
-- 📫 How to reach me : Discord : ig stoneryura#1609
+- 📫 How to reach me : Discord : Fuck Off#1609
