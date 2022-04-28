@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @.whysolost?
+- 👋 Hi, I’m @einfachnuranas?
 - 👀 I’m interested in Fortnite playing
 - 🌱 I’m currently learning C# , HTML
 - 📫 How to reach me : Discord : dtb.#1000
