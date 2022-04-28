@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @.whysolost?
 - 👀 I’m interested in Fortnite playing
 - 🌱 I’m currently learning C# , HTML
-- 📫 How to reach me : Discord : Fuck Off#1609
+- 📫 How to reach me : Discord : dtb.#1000
